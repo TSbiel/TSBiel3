@@ -7,3 +7,6 @@
 ## Tchau
 ![](https://tenor.com/pt-BR/view/floptok-storm-stan-twitter-swing-survivor-gif-16967343862987655463)
 ![](https://tenor.com/pt-BR/view/crying-sobbing-crying-girl-stantwt-stantwitter-gif-8643073221541276965)
+
+
+![](https://tenor.com/pt-BR/view/skeleton-falling-gif-27355771)
