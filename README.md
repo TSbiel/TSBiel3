@@ -7,4 +7,4 @@
 ## Tchau
 
 
-![](https://tenor.com/pt-BR/view/blackgirlrunningcrying-sis-crying-running-panick-gif-22018971)
+![]([https://tenor.com/pt-BR/view/blackgirlrunningcrying-sis-crying-running-panick-gif-22018971](https://tenor.com/hWXrn6ryq0S.gif))
