@@ -5,4 +5,4 @@
 - 🎧 Gosto de ouvir _música_
 
 ## Tchau
-![](https://media1.tenor.com/m/C0QYj4xICAAAAAAd/kitty-cat.gif)
+![](https://media1.tenor.com/m/mThw7vamL1kAAAAd/christmas-tree.gif)
