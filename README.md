@@ -6,3 +6,5 @@
 
 ## Tchau
 ![](https://media.tenor.com/KjWg6zPWNX8AAAAM/screaming-screams.gif)
+![](https://media1.tenor.com/m/QknMERWNOjAAAAAd/blackgirlrunningcrying-sis.gif)
+
