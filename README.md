@@ -6,5 +6,5 @@
 
 ## Tchau
 
-![] (https://tenor.com/boKQB.gif)
+![](https://tenor.com/boKQB.gif)
  
