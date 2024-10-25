@@ -6,5 +6,5 @@
 
 ## Tchau
 
-![](https://tenor.com/boKQB.gif)
+![](https://media1.tenor.com/m/C0QYj4xICAAAAAAd/kitty-cat.gif)
  
